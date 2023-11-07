@@ -1,5 +1,5 @@
 
-![](https://github.com/ElenaTrunchenko/portfolio/blob/main/портфолио.jpg)
+![](https://imgur.com/a/dPHzpvk)
 
 # Trunchenko Elena Vasilyevna
 
